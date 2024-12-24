@@ -1,0 +1,1 @@
+# Identification-of-Favorable-exotic-alleles-for-fiber-quality-traits-in-upland-cotton
